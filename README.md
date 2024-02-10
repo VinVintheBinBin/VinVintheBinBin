@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VinVintheBinBin
-- 👀 I’m an artist who doesn't want to starve in the future
+- 👀 I’m an artist... yeah
 - 🌱 I’m currently learning everything i possibly can
-- 💞️ I’m looking to collaborate on ME WANNA MAKE SILLY GAME
+- 💞️ I’m looking to collaborate on nothing so far. Just taking my username in case future me might want something :P
 - 📫 How to reach me is discord VinVintheBinBin#6996
 
 <!---
